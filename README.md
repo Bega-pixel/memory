@@ -1,1 +1,1 @@
-https://Bega-pixel.github.io/memory/index.html/
+https://Bega-pixel.github.io/memory/
